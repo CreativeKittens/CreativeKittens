@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @CreativeKittens
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Hello my name is Akbar Sani Hasan a.k.a Creative Kittens😽 iam creative developer from indonesia 
 
-<!---
-CreativeKittens/CreativeKittens is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- Currently learning typescript 🧑‍💻
+- Working on a personal project 💻
+- Hate wearing shoes 👠🚫
+
+I still have so much to learn
