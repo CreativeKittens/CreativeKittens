@@ -15,7 +15,7 @@ Yes i am, maaayybee🤔, here's some games i have played:
 
 ### My favorite quote
 
-> I made this sculpture with my own two hand
+> I made this sculpture with my own two hands
 >
 > It's covered with my blood, sweat, tears, and other fluids
 >
