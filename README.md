@@ -1,4 +1,4 @@
-Hello my name is Akbar Sani Hasan👨 a.k.a Creative Kittens😽 iam creative developer from indonesia
+Hello my name is Akbar Sani Hasan👨 a.k.a Creative Kittens😽 iam creative developer from indonesia :indonesia:
 
 - Currently learning typescript 🧑‍💻
 - Working on a personal project 💻
