@@ -11,7 +11,7 @@ Yes i am, maaayybee🤔, here's some games i have played:
 1. Call of duty MW Series (The OG one) 🪖
 2. Far Cry (2,3,4) 🔪
 3. Stardew Valley 🧑‍🌾
-4. Supercell
+4. Supercell Mobile Games 🏡
 
 ### My favorite quote
 
